@@ -1,2 +1,2 @@
 ## 파일이름
-- 1조-학번-이름-프로젝트아이디어제안서.pdf
+- 챗재미니조-20251290-용석준.pdf](https://github.com/user-attachments/files/22898457/20251290-.-.pdf)
